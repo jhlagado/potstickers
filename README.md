@@ -1,6 +1,8 @@
 # Potsticker Dumplings
 ## Software for your stomach
 
+![pot stickers](2338345.jpg)
+
 I used to make these a lot but got out of the habit for some reason. I first learned about these in Wuhan (you may have heard of the place) 
 they're called `guotie` _(guo tee yeah)_, `jiaozi` _(ji-ow-za)_. The Japanese called their version `gyoza` but acknowledge that it's a Chinese thing 
 (the word `gyoza` is derived from `jiaozi`). In English they're translated literally as `pot stickers`.
@@ -59,3 +61,5 @@ Serve immediately with Chinese black vinegar and shredded ginger as a dipping sa
 You could also serve with dried chillies in oil.
 I'm sorry but you're not allowed to dip these in soy sauce. It's the law! 
 Pot stickers need black vinegar (although my take way guy doesn't always believe me)
+
+![More pot stickers](Potstickers_6-landscape.jpg)
