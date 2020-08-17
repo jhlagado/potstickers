@@ -21,8 +21,7 @@ The quantities I'm giving here will feed a family of four non-footballers.
 * 1 spring onion, finely shredded and diced 
 * half a container of mushrooms
   For this i'd suggest shitake mushrooms but I used abalone mushrooms last time
-* 1 cup of finely shredded cabbage 
-  makes sure its really fine to mix into the mince. I actually used lettuce last time 
+* 1 cup of finely shredded Chinese cabbage make sure its really chopped fine to mix into the mince. I actually used lettuce last time. 
 * 1 tablespoon of soy sauce
 * 1 tablespoon of dark soy sauce, the really thick stuff, moves like mollasses
 * 1 tablespoon of rice wine or dry sherry or your finest VSOP cognac! (optional)
