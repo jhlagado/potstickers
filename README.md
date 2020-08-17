@@ -19,7 +19,7 @@ The quantities I'm giving here will feed a family of four non-footballers.
 * 1 cm of fresh ginger finely minced
 * 1 garlic finely chopped
 * 1 spring onion, finely shredded and diced 
-* half a container of mushrooms
+* half a container of mushrooms (say, 5?)
   For this i'd suggest shitake mushrooms but I used abalone mushrooms last time
 * 1 cup of finely shredded Chinese cabbage make sure it's really chopped fine. I actually used lettuce last time. 
 * 1 tablespoon of soy sauce
