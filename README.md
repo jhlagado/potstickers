@@ -3,7 +3,7 @@
 
 ![pot stickers](2338345.jpg)
 
-I used to make these a lot but got out of the habit for some reason. I first learned about them in Wuhan (you may have heard of the place). I just got off the boat that had taken me down the Yangtze and stumbled into a restaurant. They're not unique to this area by any means. You can get them all over China.  
+I used to make these a lot but got out of the habit for some reason. I first learned about them in Wuhan (you may have heard of the place). I just got off the boat that had taken me down the Yangtze river and stumbled into a restaurant. They're not unique to this area by any means. You can get them all over China.  
 
 They're called `guotie` _(guo tee yeah)_, `jiaozi` _(ji-ow-za)_. The Japanese call their version `gyoza` but acknowledge that it's really a Chinese thing 
 (the word `gyoza` is derived from `jiaozi`). In English they're translated literally as `pot stickers`.
