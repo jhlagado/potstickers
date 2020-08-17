@@ -37,7 +37,7 @@ In a large bowl just put all the ingredients together and stir them up until wel
 
 While you can definitely buy wrappers, I'm going to tell you right now that the extra effort of making your own dumpling wrappers 
 is really worth it and probably the main reason to follow this recipe at all. 
-Commercial wrappers are thin like wontons, home made wrappers are thicker and more absorbant 
+Commercial wrappers are thin like wontons, home made wrappers are thicker and more absorbant. 
 This turns a entree into a decent meal.
 
 * 2 cups of white flour
