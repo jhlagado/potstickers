@@ -13,9 +13,9 @@ The quantities I'm giving here will feed a family of four non-footballers.
 ## Ingredients
 
 * 250 grams of minced pork 
-  if you don't eat pork there are lots of good alternatives, 
-  i'd suggest veal but chicken or beef might be OK, 
-  there is a vegetarian version too (although I'm not sure of the ingredients)
+  If you don't eat pork there are lots of good alternatives. 
+  I'd suggest veal but chicken or beef might be OK. 
+  There is a vegetarian version too (although I'm not sure of the ingredients).
 * 1 cm of fresh ginger finely minced
 * 1 garlic finely chopped
 * 1 spring onion, finely shredded and diced 
