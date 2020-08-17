@@ -53,12 +53,13 @@ Dust the surface with flour and roll the balls into disks about 10cm in size and
 Nothing needs to be precise. You should be able to make 30+ dumplings depending on their size.
 
 Take a teaspoon of the mince mixture and put it in the centre of the wrapper. 
-Dip your fingers in water (keep a small bowl of water handy) and use it to wet the outer edge of the wrapper.
+Dip your fingers in water (keep a small bowl of water handy) and wet the outer edge of the wrapper.
 Close the wrapper like a little envelope and seal the edge. 
 
 Get a non-stick frying pan with a lid although you can do this without a lid too. Having two pans on the go would be even better.
 
-Put a tablespoon of oil in the pan and fry the bottoms of the dumplings you might fit 10 dumplings in the pan. 
+Put a tablespoon of oil in the pan and fry the bottoms of the dumplings. 
+You might fit 10 dumplings in the pan. 
 Fry them a bit until they're lightly browned on one side. About 5 minutes. 
 Then cover the dumplings with about 1 cm of water (or chicken stock) and simmer covered until the dumplings are cooked 
 and all the water has been absorbed or evaporated. About 10 minutes. 
