@@ -60,8 +60,8 @@ Get a non-stick frying pan with a lid although you can do this without a lid too
 
 Put a tablespoon of oil in the pan and fry the bottoms of the dumplings you might fit 10 dumplings in. 
 Fry them a bit until they are lightly browned on one side. About 5 minutes. 
-Then cover the dumplings with 1 cm of water (or chicken stock) and simmer until the dumpling are cooked 
-and all the water has been absorbed or evaporated. About 10 minutes.
+Then cover the dumplings with 1 cm of water (or chicken stock) and simmer covered until the dumpling are cooked 
+and all the water has been absorbed or evaporated. About 10 minutes. Take the cover off for the last few minutes to help evaporation.
 
 Serve immediately with Chinese black vinegar and shredded ginger as a dipping sauce.
 You could also serve with dried chillies in oil.
