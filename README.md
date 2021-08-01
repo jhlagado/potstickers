@@ -1,7 +1,7 @@
 # Potsticker Dumplings
 #### Software for your stomach
 
-![pot stickers](2338345.jpg)
+![pot stickers](20210731_180342.jpg)
 
 I used to make these a lot but got out of the habit for some reason. I first learned about them in Wuhan (you may have heard of the place). I just got off the boat that had taken me down the Yangtze river and stumbled into a restaurant. They're not unique to this area by any means. You can get them all over China.  
 
@@ -70,4 +70,4 @@ You could also serve with dried chillies in oil.
 I'm sorry to say this but you're NOT allowed to dip these in soy sauce. It's actually the law! 
 Pot stickers need black vinegar!
 
-![More pot stickers](Potstickers_6-landscape.jpg)
+![More pot stickers](20210731_184448.jpg)
