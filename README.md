@@ -12,20 +12,22 @@ The quantities I'm giving here will feed a family of four non-footballers.
 
 ## Ingredients
 
-* 250 grams of minced pork 
+* 350 grams of minced pork 
   If you don't eat pork there are lots of good alternatives. 
   I'd suggest veal but chicken or beef might be OK. 
   There is a vegetarian version too (although I'm not sure of the ingredients).
 * 1 cm of fresh ginger finely minced
 * 1 garlic finely chopped
-* 1 spring onion, finely shredded and diced 
+* 1 spring onion, finely shredded and diced finely
 * half a container of mushrooms (say, 5?)
   For this i'd suggest shitake mushrooms but I used abalone mushrooms last time
 * 1 cup of finely shredded Chinese cabbage make sure it's really chopped fine. I actually used lettuce last time. 
 * 1 tablespoon of soy sauce
 * 1 tablespoon of dark soy sauce, the really thick stuff, moves like mollasses
 * 1 tablespoon of rice wine or dry sherry or your finest VSOP cognac! (optional)
-* 1 teaspoon of sesame oil
+* 1 teaspoon of sesame oil (optional)
+
+Any other sauces you might like to try (teriyaki, bulgogi etc.). They all work as flavourings.
 
 None of these ingredients or quanitities are strict, just mix and match what you like. You need some saltiness to 
 go with the mince meat, you need some vegies in there to lighten the taste and to balance your cosmic energies. 
@@ -40,9 +42,9 @@ is really worth it and probably the main reason to follow this recipe at all.
 Commercial wrappers are thin like wontons, home made wrappers are thicker and more absorbant. 
 This turns a entree into a decent meal.
 
-* 2 cups of white flour
+* 1.5 cups of white flour
 * 1 tablespoon of vegetable oil
-* 1 cup of warm water 
+* 3/4 cup of warm water 
 
 Put the flour and oil in a large bowl and using a knife or a chopstick to slowly stir in the water until you get a soft dough.
 Don't use all the water if it's getting too sticky. If it's already sticky, add some more flour to soak it up. 
